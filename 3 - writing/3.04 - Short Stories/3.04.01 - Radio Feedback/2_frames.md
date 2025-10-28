@@ -1,14 +1,24 @@
-- Tuck arrives at the school
+# Dinner
+## Tuck arrives at the school
+Tuck is borderline late to the reunion. He pulls his big rig into the parking lot. He combs his hair and straightens his shirt in the rearview mirror. He tells his dog, Hank, to keep an eye on things. Hank looks up at him without lifting his head. Good boy. He pops out of the truck, cowboy boots clicking on the pavement. Oli is waiting for him. She says the others are inside. She figured he'd show up. link arms and walk in together.
 
-    - Tuck is borderline late to the reunion. He pulls his big rig into the parking lot. He combs his hair and straightens his shirt in the rearview mirror. He tells his dog, Hank, to keep an eye on things. Hank looks up at him without lifting his head. Good boy. He pops out of the truck, cowboy boots clicking on the pavement.
+## Dinner
+- The gymnasium was decorated with a wizard of Oz theme: 'There's no place like home.' 
+- Oli drops Tuck off at the table. I have to go in the back to check on something. 
+- "Don't you know Oli's little catering business is the one doing the food tonight?"
 
-    - Oli is waiting for him. She says the others are inside. She figured he'd show up. link arms and walk in together.
+## Drive back to the House
+- Oli rides back to the house with Tuck. Hank remembers her. 
+- Tuck asks about the family and the business. Oli's wife is home with the kids tonight. 
 
-    - The gymnasium was decorated with a wizard of Oz theme: 'There's no place like home.' Oli's company did the catering. Local prairie foods.
+## Drinks
+Adrian offers them both a fancy cocktail. Tuck declines and asks if there's any beer. Oli says she put his favorite in the fridge. Tuck throws her a smile and goes into the kitchen. Notices a door to the basement that says 'Ryan Reeves: Private'. He walks back into the living room and drops into an armchair and cracks the beer.
 
-- Reunion Dinner - The radio club friends reunite. They catch up a little, and Tucker notes how he doesn't remember Adrian being such a douchebag. 
+"Oli, is this Mr. Reeves' old house?"
+Oli blushes. 
+"I thought it was fitting. We bought it and fixed it up into a rental a few years back."
+"What happened to Mr. Reeves?" Mel asked.
 
-- Return to the house - The friends return to the airbnb. Oli suggests a night cap. They get to talking about Mr. Eaves. Oli tells the story she knows. They all remark how sad it is. Adrian talks about the loneliness epidemic
 
 - The Radio Room - Tucker says they should go see if the radio stuff is still in the basement. They find the notebooks and dust off and plug in the radio stuff.
 
