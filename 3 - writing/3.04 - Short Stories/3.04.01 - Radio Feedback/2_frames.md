@@ -20,32 +20,20 @@ Oli blushes.
 "What happened to Mr. Reeves?" Mel asked.
 
 
+
 - The Radio Room - Tucker says they should go see if the radio stuff is still in the basement. They find the notebooks and dust off and plug in the radio stuff.
 
-- Oli's station
-- Adrian's station
-- Mel's station
 
-- Mel leaves the radio room
+- Oli's station - Wife tucking kids in. saying nice things about Oli. cuts to other conversation about Oli, saying that the food was good but simple. Shame she never got out of this town, she could have done great things. 
+- Adrian's station - Adrian wants to hear his station next. It's someone saying that he will be a footnote. The producer of the purple couch. Cuts down Adrian's inflated ego. Adrian storms off to bed. Mel follows him.
 
-    - Mel hears something on her station that upsets her
+- Tuck walks Oli home. She asks Tuck if he thinks the person on the radio was right, if she's wasting herself in this town. Tuck says he's been all over: big cities, overseas, small towns. Seen people at their best and their worst. People are people everywhere. On a 20 million dollar yacht or bum-fuck kansas, people are people. They want friends, family, food, fucking, financial stability and a house to put all those things in. You've got all four so I reckon you're doing alright.
 
-    - Adrian says she's just tired
+- What about you? I make out fine on the road. No, don't you get lonely on the road? No friends? I've got you, don't I? You only come through once a year if that. I worry about you sometimes out there. You don't need to worry Oli. I'm fine. I'm just fine.
 
-    - Trucker asks when he became such a dick
+- Tucker walks home. He'd always been cut different. people did need the F's, but not all people. folks like Tuck--he'd met a handful of others--just didn't need those things in the same way. Floaters he called them. He was a floater. He walks around the whole town. Catching glimpses of the night through windows. Letting Hank sniff this and that. He was a floater, and that was alright with him.
 
-        - at this point Adrian has been condescending and pretentious all night. Tucker is sick of it.
+- Gets back to the house and notices lights still on in the basement. He goes to turn them out, but finds Mel there hunched over the radio equipment. She has a 10,000 ft stare. Tuck touches her shoulder and she jumps. "Jesus, Tuck. You almost killed me." "Hear anything good?" "Nope.
+Tuck pulls out a pack of cigarettes. "For special occasions. Care to join me?" Mel looks back at the radio. There's still some voices from the earphones. "C'mon Mel, it's a nice night outside."
 
-    - Adrian fires back
-
-- Mel and Tucker have a cigarette on the front porch
-
-    - Tucker offers a cigarette to Mel.
-
-        - We'll probably be the last generation of smokers. Good riddance. I shouldn't be doing this.
-
-            - Contrast Tuck's recognition of the good, Mel's guilt. If you're gonna smoke, Mel, just enjoy the smoke.
-
-    - remember when Mr. Eaves caught us smoking behind the radio room.
-
-    - Mel confides that she is tired. She's tired of all of it. Feels stuck, like she can't quite catch her breath. Feels like she just talks to the same people about the same things. That's why it hurt to hear what the people said on the radio
+- They sit on the porch steps of the house, smoking their cigarettes. Mel asks Tuck if he ever wishes he has more of an impact? Does he ever want more than just driving some cargo cross-country? Tuck drags on the cigarette and looks up at the stars. Mel confides that she doesn't know if what she and Adrian do is important. It's all just talk. They get to people who talk for a living to talk to them and they also talk for a living. It doesn't feel real. Adrian thinks they're changing the world, but it doesn't feel like it. I didn't know what I wanted to do. I just wanted to get out of here and be famous, be someone that got out, you know--be a real person. And I did, I got out; I got famous--sort of. I've been invited to exclusive events hosted by important and powerful people who knew my name. But it doesn't feel like enough anymore. I see Oli and I get jealous. I don't know why. I don't want to make pies for a living. I never could cook. But people here know her, like her, depend on her. It may just be food, but it's real. It's not just talk. She matters to the people here. 
