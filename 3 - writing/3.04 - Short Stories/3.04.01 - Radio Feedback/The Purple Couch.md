@@ -1,0 +1,3 @@
+The Purple couch is a political podcast where Adrien (A Democrat) and Annabelle (A Conservative) host people for both sides of the aisle to have a civil discourse on a particular topic. It was lauded for a return to civility and a revolutionary show trying to find common ground. They all sit on a purple couch. 
+
+Annabelle worries that it is still just an insider show. Sure, these people who come on the show are powerful people, but what difference are they making for the people that those politicians allegedly serve. She feels jaded with Washington, where everyone feels like they are playing a part, and the part they are cast in is just random. She even sees Adrien increasingly seduced by the power and self-congratulation. He is starting to buy and spread the bullshit.

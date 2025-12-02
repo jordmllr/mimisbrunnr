@@ -1,0 +1,5 @@
+Oli rides back with Tuck. They talk a little bit about her, and then they talk a little about Adrien and Annabelle.
+
+This is the first introduction of talking about people behind their backs. As such, it's an opportunity to introduce the question of whether some things are best if not told directly. Tuck is of the opinion that people should speak their mind and be themselves and there wouldn't be so much confusion all the time. Oli agrees that people are generally chicken-shit when they don't need to be, but sometimes you need to talk about someone before you talk to them or to see if you need to talk to them. 
+
+That is, Tuck is a little more heart on his sleeve, while Oli agrees that idle gossip is bad, she also believes that there can be value in processing and thinking before reacting. Tuck says he thinks in another life they must have been friends on some ancient battlefield and he was a warrior ready to launch into the fray while she was a wise general weighing the odds and thinking things through. 

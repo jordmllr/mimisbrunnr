@@ -1,0 +1,1 @@
+Tuck takes the radio with him and leaves.
