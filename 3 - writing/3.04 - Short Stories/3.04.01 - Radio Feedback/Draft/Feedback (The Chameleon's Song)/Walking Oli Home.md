@@ -8,6 +8,8 @@ Well, what if you had the rotating traditional menu: 5 or 6 traditional dumpling
 
 She comes back with a little box and says it's just a prototype. Tuck opens it and inside is a caramel, spun sugar cage with a white creamy sphere in the middle: a creme broulee dumpling. He pops it in his mouth and its as incredible as you would think it would be. 
 
+Oli says that some of what Adrien said is true. Oli has been wanting to branch out and push herself. 
+
 Tuck asks when she opens this place? She gets shy and says its just a dream, and it probably wouldn't work in town. Tuck makes a couple observations about how Lattes and Cappuccinos used to be for cities, but now almost every tiny town has an espresso shop. You're not trying to convince people to eat frog lips, you're telling them to eat a little pocket of something delicious. 
 
 She gives him a sharp look.
