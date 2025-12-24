@@ -1,9 +1,9 @@
 # draft
-Tuck pulled the semi passed the 'Rutherford High School' sign and threaded it behind a row of cars. The parking lot was packed. Tuck gave a cursory glance as if to spy a better parking space for the rig, but, seeing none, he shrugged and muttered "I guess they'll just have to wait til I leave."
+Tuck pulled the semi past the 'Rutherford High School' sign and threaded it behind a row of cars. The parking lot was packed. Tuck gave a cursory glance as if to spy a better parking space for the rig, but, seeing none, he shrugged and muttered "I guess they'll just have to wait til I leave."
 
-He reached behind the seat and pulled a rumpled blazer from under his mastiff.
+He reached behind the seat and pulled a rumpled blazer out from under his mastiff, sleeping in the bunk.
 'Sorry, Hank.'
-Hank sighed, circled twice and slumped back into the rear seat with a long groan. 
+Hank sighed, circled twice and slumped back down with a long groan. 
 Tuck laced his arms through the blazer and fixed his collar in the mirror. He lifted the stetson from the seat next to him and hovered it over his head. 
 "what do you think, Hank? Hat or no hat?"
 He glance back at hank who glanced up at him, sighed again, and looked away. 
@@ -45,7 +45,7 @@ Oli pulled Tuck towards a table with a woman in an off the shoulder dress seated
 "Tuck!" Annabelle said. She sprang from her seat and gave him a hug. 
 "Good to see you, Annabelle. You look magnificent!"
 Annabelle looked down at the dress and then surveyed the room frowning. 
-"Adrien insisted we dress up like we were going to some DC gala. I told him we'd be over dressed, and I was right. I feel a little silly-looking."
+"Adrien insisted we dress up like we were going to some gala. I told him we'd be over dressed, and I was right. I feel a little silly."
 "You look great!" Oli said.
 They all sat down around the red and white checkered table cloth.
 
